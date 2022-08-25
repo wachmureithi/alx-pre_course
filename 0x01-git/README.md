@@ -1,1 +1,1 @@
-coding is cool
+I love coffee
